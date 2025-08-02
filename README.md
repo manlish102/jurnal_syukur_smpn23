@@ -1,0 +1,2 @@
+# jurnal_syukur_smpn23
+JURNAL SYUKUR SMP NEGERI 23 BALIKPAPAN
